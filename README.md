@@ -6,4 +6,9 @@ You can use the design to learn electronics, or to make a commercial product
 Thank you
 
 Best,
+
 Hilmy Izzulhaq
+
+Founder & CEO ARSA Technology
+
+hilmy@arsa.tech
